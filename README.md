@@ -6,7 +6,7 @@
 
 More about South Park at http://www.southparkstudios.com/
 
-Most of the characters/objects are made from sratch while others are taken
+Most of the characters/objects are made from scratch while others are cut
 from images.
 
 The movie took 2 weeks and 2 people. It was made as course project for FLASH
