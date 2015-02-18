@@ -2,6 +2,8 @@
 
 ### About
 
+January 2010
+
 50 seconds movie intro of the early South Park seasons episodes made on FLASH.
 
 More about South Park at [http://www.southparkstudios.com/](http://www.southparkstudios.com/)
